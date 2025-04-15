@@ -1,0 +1,2 @@
+# Directories
+DIRECTORIES - PRIME LOCATIONS
